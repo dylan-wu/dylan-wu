@@ -2,4 +2,17 @@
 
 ## Howdy! I'm Dylan.
 
-Leveraging and creating online communities to scale businesses, create content, personal branding, SaaS and solopreneur businesses, and free young minds with the creator economy mindset.
+Hey there! I'm 18 years old and interested in AI, community, learning, and growing and scaling businesses.
+
+My goal is to leverage and create online communities and resources to scale businesses, create content, personal branding, SaaS and solopreneur businesses, and free young minds with the creator economy mindset.
+
+Here's a quick bulleted run-down of what I've been up to over the years:
+- Started homeschooling in 7th grade
+- Attended community college at 12 years old
+- Became president and vice-president of multiple college clubs, leading students often twice my age
+- Started taking courses from the University of Texas at Rio Grande Valley through their Mathematics and Science Academy at 15 years old
+- Became a research assistant at an NSF funded research program on Near Peer Mentoring led by UTRGV professors in the Mathematics, and Education departments.
+- Created dozens of scripts to explain complex math concepts like Zeno's paradox in simple, direct, entertaining, narrative driven videos, and distributed them to participating area High Schools
+- Worked with college graduates, PhD candidates and 4 Principle Investigators as the only High School student
+- Took 3 graduate level mathematics courses: MATH 6331 Algebra I, MATH 6352 Analysis I and MATH 6353 Analysis II
+- Graduated High School a year early with 100+ college credits
