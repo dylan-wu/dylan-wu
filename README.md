@@ -2,4 +2,4 @@
 
 ## Howdy! I'm Dylan.
 
-[![Dylan's GitHub stats](https://github-readme-stats.vercel.app/api?username=dylan-wu)](https://github.com/dylan-wu/github-readme-stats)
+Leveraging and creating online communities to scale businesses, create content, personal branding, SaaS and solopreneur businesses, and free young minds with the creator economy mindset.
